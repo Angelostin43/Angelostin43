@@ -1,8 +1,8 @@
 # ☾ Hola/como/estas|espero\que\bien ☽
 
-  >⛚  Junior ⛚
+  >⛚  Senior ⛚
 
-  >⛚  Tengo **18** años ⛚
+  >⛚  Tengo **16** años ⛚
 
   - **L** e **n** g **u** a **j** e **s** :
    
