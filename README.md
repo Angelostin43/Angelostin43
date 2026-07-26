@@ -1,6 +1,6 @@
 # ☾ Hola/como/estas|espero\que\bien ☽
 
-  >⛚  Senior ⛚
+  >⛚  Junior ⛚
 
   >⛚  Tengo **20** años ⛚
 
